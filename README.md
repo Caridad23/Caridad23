@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on meeting other web developers, and learning form them
 - 📫 How to reach me jewelsofpassion1@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Used to be an elementary techer
+- ⚡ Fun fact: Used to be an elementary techer and love to bake
 
 <!---
 Caridad23/Caridad23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
